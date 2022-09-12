@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto and traveling
 - 🌱 I’m currently learning java and marketing
 - 💞️ I’m looking to collaborate on some new project 
-- 📫 How to reach me, u can find me on twitter @NoahSoaf
+- 📫 How to reach me, u can find me on twitter @NoahSoaf and discord noahh#4568
 
 
 <!---
